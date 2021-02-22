@@ -3,5 +3,13 @@
 - XSPOOFER - AN UNIVERSAL E-MAIL SPOOFER APP.
 - MORE COMMING SOON 😴
 
-## FOLLOW US ON SOCIAL MEDIA
+## SUPPORT NOTICE
+We (a.k.a Team X) are newbie to your community dude. Hope you will support us to do something new for you which will help you geeking :D
+
+## SUPPORT US ON SOCIAL MEDIA
 - [FACEBOOK](https://facebook.com/Xbomber.Official)
+- [GITHUB](https://github.com/WeAreTeamX)
+- [IGN0R3DH4X0R](https://github.com/Ign0r3dH4x0r)
+- [TECH WITH PRITOM](https://github.com/TechWithPritom)
+
+
