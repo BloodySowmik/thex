@@ -9,7 +9,7 @@ We (a.k.a Team X) are newbie to your community dude. Hope you will support us to
 ## SUPPORT US ON SOCIAL MEDIA
 - [FACEBOOK](https://facebook.com/Xbomber.Official)
 - [GITHUB](https://github.com/WeAreTeamX)
-- [IGN0R3DH4X0R](https://github.com/Ign0r3dH4x0r)
+- [IGN0R3DH4X0R](https://linktr.ee/Xowmik)
 - [TECH WITH PRITOM](https://github.com/TechWithPritom)
 
 
